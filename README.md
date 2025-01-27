@@ -1,1 +1,1 @@
-# funmi.github.io
+# ideal-journey
